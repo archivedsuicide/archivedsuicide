@@ -1,10 +1,53 @@
-<img width="745" height="296" alt="image" src="https://github.com/user-attachments/assets/64c85b48-d6d8-4954-a301-bcb0b27fa27e" />
+﹒profile wip. ‼
 
-  ───────────────────────────────────────────────────────────────────────────
-  
-  Call me Max or Kiwi .ᐟ
+​🇹​​🇭​​🇮​​🇸​ ​🇬​​🇮​​🇹​​🇭​​🇺​​🇧​ ​🇮​​🇸​ ​🇺​​🇸​​🇪​​🇩​ ​🇫​​🇴​​🇷​ ​🇵​​🇴​​🇳​​🇾​​🇹​​🇴​​🇼​​🇳​ ​🇸​​🇹​​🇷​​🇮​​🇨​​🇹​​🇱​​🇾​
 
-  
-  I LOVE BEAM AWWWOOOOOOOOOOOOOO KYA KYA KYA!!!!!!!!!!!!!!11!
-  
-                      𝘗𝘳𝘰𝘧𝘪𝘭𝘦 𝘪𝘯 𝘱𝘳𝘰𝘨𝘳𝘦𝘴𝘴!
+
+
+<img width="364" height="250" alt="image" src="https://github.com/user-attachments/assets/cc782d86-5a8f-4ef8-825f-d37d4cacf6e5" />
+
+
+
+ㅤ
+
+
+
+
+
+ㅤ
+𐔌 Manny . Maxㅤㅤㅤ𓏵ㅤㅤㅤHe . Him ꒱
+
+
+
+
+
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+▸ Online every now and then . Feel free to interact with me if you see me online . Just don't be weird yo!
+
+
+
+▸ Find me where ?
+
+Here! ⤵︎
+
+𐔌 Above docks . Kingdom RPS . School RPS . Oc makers. ꒱
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+
+𖾕𖾝꙼ᩚ𛲕𖾟
