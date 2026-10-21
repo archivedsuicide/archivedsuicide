@@ -38,7 +38,7 @@
 
 Here! ⤵︎
 
-𐔌 Above docks . Kingdom RPS . School RPS . Oc makers. ꒱
+𐔌 Above docks . Kingdom RPS . School RPS [ꜱᴏᴍᴇᴛɪᴍᴇꜱ] . Oc makers. ꒱
 
 
 
