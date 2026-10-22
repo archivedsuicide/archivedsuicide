@@ -34,7 +34,7 @@
 
 ▸ I don't accept random friend requests without asking first.
 
-▸ DNI forsaken . dw . tagc fandom.
+▸ DNI forsaken . dw . tagc . crk fandom.
 
 
 
