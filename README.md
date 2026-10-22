@@ -50,4 +50,5 @@ Here! ⤵︎
 
 
 
-𖾕𖾝꙼ᩚ𛲕𖾟
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/52c60cb0-ccd6-402a-a36f-978395dff4f6" />
+
