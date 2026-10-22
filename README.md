@@ -30,7 +30,11 @@
 
 
 
-▸ Online every now and then . Feel free to interact with me if you see me online . Just don't be weird yo!
+▸ Online every now and then . Feel free to interact with me if you see me online . Just don't be weird .
+
+▸ I don't accept random friend requests without asking first.
+
+▸ DNI forsaken . dw . tagc fandom.
 
 
 
@@ -38,7 +42,7 @@
 
 Here! ⤵︎
 
-𐔌 Above docks . Kingdom RPS . School RPS [ꜱᴏᴍᴇᴛɪᴍᴇꜱ] . Oc makers. ꒱
+𐔌 Above docks . Kingdom RPS . Oc makers. ꒱
 
 
 
